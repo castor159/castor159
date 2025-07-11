@@ -9,4 +9,4 @@
 - 🤔 Projetos: 3º lugar na competição nacional de robotica movel da limpíada do conhecimento promovida pelo SENAI nacional.
 - 💬 E-mail de contato: leosantossilva159@gmail.com
 
---> Obrigado pela visita!
+--> Curriculo Leonardo dos Santos
